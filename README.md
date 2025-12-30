@@ -4,6 +4,7 @@
 <img src="https://media1.tenor.com/m/D9zBn4E06jkAAAAC/gary-smith-pete-kowalski.giff" 
     width="300" 
      height="600"  /><br>
+     <br>
      
  ![](https://komarev.com/ghpvc/?username=ennis-del-mar&color=6F8741&style=plastic&label=✧&base=600)<br>
      
