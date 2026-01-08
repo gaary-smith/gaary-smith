@@ -1,7 +1,7 @@
 <div align="center">
 
 <br>
-<img src="https://media1.tenor.com/m/115U6UXCFgoAAAAd/gary-smith-pete-kowalski.gif" 
+<img src="https://static.wikia.nocookie.net/bullyfanon/images/a/a4/Gary_hole.gif/revision/latest?cb=20150517021544" 
       ><br>
      <br>
      
