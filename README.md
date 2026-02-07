@@ -1,7 +1,7 @@
 <div align="center">
 
 <br>
-<img src="https://media1.tenor.com/m/Qlu3OwJatboAAAAd/bully-scholarship-edition-canis-canem-edit.gif" 
+<img src="https://media1.tenor.com/m/jh7sBXCJfJsAAAAd/gary-smith-bully-scholarship-edition.gif" 
       ><br>
      <br>
      
