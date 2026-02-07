@@ -1,7 +1,7 @@
 <div align="center">
 
 <br>
-<img src="https://static.wikia.nocookie.net/bullyfanon/images/a/a4/Gary_hole.gif/revision/latest?cb=20150517021544" 
+<img src="https://media1.tenor.com/m/Qlu3OwJatboAAAAd/bully-scholarship-edition-canis-canem-edit.gif" 
       ><br>
      <br>
      
