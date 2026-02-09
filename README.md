@@ -3,7 +3,7 @@
  ![](https://komarev.com/ghpvc/?username=ennis-del-mar&color=6F8741&style=plastic&label=&base=600)
 
 <br>
-<img src="https://media1.tenor.com/m/jh7sBXCJfJsAAAAd/gary-smith-bully-scholarship-edition.gif" 
+<img src="https://file.garden/aEiyzAAiJQqbXoUF/tumblr_ad4cfa023ac43b614f3c297159ab055e_661da67a_400.webp" 
       ><br>
      <br>
           
