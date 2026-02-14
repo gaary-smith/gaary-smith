@@ -4,9 +4,6 @@
       
  ![](https://komarev.com/ghpvc/?username=ennis-del-mar&color=6F8741&style=plastic&label=&base=600)
 
- <img src="https://file.garden/aEiyzAAiJQqbXoUF/tumblr_8325a98238fbfc6bc186d3aa59c48cbc_2be38843_2048.png" 
-       width="300" 
-     height="400" />
 
 <br>
 <img src="https://file.garden/aEiyzAAiJQqbXoUF/Tumblr_l_771866427046.jpg" 
